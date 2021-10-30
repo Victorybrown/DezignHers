@@ -10,3 +10,12 @@ We are stronger together as a community than alone so we focus on creating a saf
 - Bridge the gaps left behind in bootcamp by providing physical presence to help review and discuss with these designers.
 - We are looking to organize workshops, masterclasses, and design challenges to keep people engaged and achieve our goal of challenging one another to become not only better designers, but better professionals.
 
+# Socials
+Join us here: Slack: (Would be communicated via email once accepted)
+		Follow us on Twitter: 
+
+[Fill form as Mentor](https://docs.google.com/forms/d/e/1FAIpQLSeDwW9XYR--sgLFri7pjAW-1A2WQjefQBBval35QPBozoKIog/viewform)
+
+[Fill form as Mentee](https://docs.google.com/forms/d/e/1FAIpQLSfgTW16Ca3ROz64phrESr05SKqSfUpoZPqVtYQ9El-HBi3aZg/viewform)
+
+
